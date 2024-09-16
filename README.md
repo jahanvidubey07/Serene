@@ -16,13 +16,8 @@
 
 ![screencapture-localhost-3000-login-2024-09-16-14_08_20](https://github.com/user-attachments/assets/eede19a4-151e-4116-b89c-34f0330eac5c)
 
-![Screenshot 2024-09-16 141432](https://github.c
 
-![Screenshot 2024-09-16 141514](https://github.com/user-attachments/assets/2efb53e0-b7e9-4430-9479-9392258f2c58)
 
-![screencapture-localhost-3000-login-2024-09-16-14_08_44](https://github.com/user-attachments/assets/8e0e53b1-f437-4f2a-b80c-ce1528057885)
-
-om/user-attachments/assets/d94d5e0b-2810-4e28-ace3-d32d54587ebc)
 
 
 
